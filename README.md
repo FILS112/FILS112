@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FILS112
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...Nimic
+- 🌱 I’m currently learning ...all
+- 💞️ I’m looking to collaborate ....never
 - 📫 How to reach me ...https://discord.gg/E2y942F
 
 <!---
